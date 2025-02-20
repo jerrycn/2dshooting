@@ -42,3 +42,14 @@ https://www.youtube.com/watch?v=Is1AnqCPY2U
 https://imageresizer.com/
 
 https://www.adobe.com/express/feature/image/remove-background
+
+
+https://trello.com/
+
+https://www.superbase.com/    
+
+https://replit.com/
+
+https://www.figma.com/
+
+https://c89f4f8a-d8c0-4849-bde7-437cd463e739-00-1f85jr923w43.sisko.replit.dev/
